@@ -1,2 +1,3 @@
 # 6Companies30Days
+Sheet for Company 1 Microsoft: https://www.youtube.com/redirect?event=video_description&redir_token=QUFFLUhqbF9fM1lFcVFNelYzMnd1NWdRb0prUjd0NEJVd3xBQ3Jtc0ttREVvX2RrVkNVcHN1SnVYNlhuVFVlU0J6T3k5VmotWTRfN0UyWDF6SXpRRFFoRW94TVkxejdjeEI0OG1iZGxVRUdOUm0xVTdwT3BCd00tS2ZwS1FzOGx0TzEyS2t6dXVYSkpUcTI3dDNGSHpQdmxVOA&q=https%3A%2F%2Fdocs.google.com%2Fdocument%2Fd%2F1jkVKWPcOAE2Xjt7GFLV-M8N50HygZpWcO26REFa7dZM%2Fedit%3Fusp%3Dsharing&v=QUnaBYKQkZU
 Revise with Arsh
